@@ -13,5 +13,7 @@ Reid is watching me and forcing me to write this intro, I really don't want to. 
 Hi, my name is Olivia and one of my hobbies is introducing myself.
 
 ## Tansy Intro
-
 Hi, I'm Tansy and I will be taking part in this project. My Hobbies are avoiding hostage situations.
+
+## Carina Intro
+Hey, it's me Carina. Looking forward to getting started with the group project. what I like: My privacy.
