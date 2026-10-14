@@ -8,6 +8,10 @@ Hey there, I'm Reid and I'll be working on this group project with you. My "hobb
 
 Reid is watching me and forcing me to write this intro, I really don't want to. Please help.
 
+## Olivia intro
+
+Hi, my name is Olivia and one of my hobbies is introducing myself.
+
 ## Tansy Intro
 
 Hi, I'm Tansy and I will be taking part in this project. My Hobbies are avoiding hostage situations.
