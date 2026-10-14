@@ -11,3 +11,6 @@ Reid is watching me and forcing me to write this intro, I really don't want to. 
 ## Olivia intro
 
 Hi, my name is Olivia and one of my hobbies is introducing myself.
+
+## Carina Intro
+Hey, it's me Carina. Looking forward to getting started with the group project. what I like: My privacy.
