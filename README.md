@@ -17,3 +17,7 @@ Hi, I'm Tansy and I will be taking part in this project. My Hobbies are avoiding
 
 ## Carina Intro
 Hey, it's me Carina. Looking forward to getting started with the group project. what I like: My privacy.
+
+## Stéphanie Intro
+Hey, I'm Stéphanie. And I'm just here for the good vibes.
+Let's go Tech Girlies
